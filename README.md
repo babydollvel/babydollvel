@@ -1,1 +1,20 @@
-" Hey, my little puppets! I'm putting up a poll, vote "YES" or "No.." if you want me to absolutely OBLITERATE this guy! "
+⊹ ࣪ ˖ " 𝑯𝒆𝒚, 𝒎𝒚 𝒍𝒊𝒕𝒕𝒍𝒆 𝒑𝒖𝒑𝒑𝒆𝒕𝒔! 𝑰'𝒎 𝒑𝒖𝒕𝒕𝒊𝒏𝒈 𝒖𝒑 𝒂 𝒑𝒐𝒍𝒍, 𝒗𝒐𝒕𝒆 "𝒀𝑬𝑺" 𝒐𝒓 "𝑵𝒐.." 𝒊𝒇 𝒚𝒐𝒖 𝒘𝒂𝒏𝒕 𝒎𝒆 𝒕𝒐 𝒂𝒃𝒔𝒐𝒍𝒖𝒕𝒆𝒍𝒚 𝑶𝑩𝑳𝑰𝑻𝑬𝑹𝑨𝑻𝑬 𝒕𝒉𝒊𝒔 𝒈𝒖𝒚! "
+
+<img width="1080" height="731" alt="IMG_0741" src="https://github.com/user-attachments/assets/8b86d9aa-ad47-4270-9fb3-acf1d5dac5d8" />
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+
+˖˚⊹ ꣑ৎ‎ 𝑴𝒆𝒊’𝒔 𝑨𝒃𝒐𝒖𝒕 𝑴𝒆 ⋆.ೃ࿔*:･
+
+𑣲 17 ⊹ ࣪ ˖
+
+𑣲 She/They ⊹ ࣪ ˖
+
+𑣲 Vox Yume I guess,,,. ., ⊹ ࣪ ˖
+
+𑣲 No DNI! I hide/block/ignore freely ⊹ ࣪ ˖
+
+𑣲 Literally Velvette <3 ⊹ ࣪ ˖
+
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+<img width="1200" height="731" alt="IMG_0742" src="https://github.com/user-attachments/assets/5287cc9b-e80d-4fac-98f9-6579a43be2d1" />
+" ♪ 𝑰𝒇 𝒉𝒆 𝒕𝒉𝒊𝒏𝒌𝒔 𝒕𝒉𝒂𝒕 𝒉𝒆 𝒄𝒂𝒏 𝒄𝒖𝒕 𝒖𝒔 𝒐𝒖𝒕, 𝒇𝒖𝒄𝒌 𝒉𝒊𝒎! 𝑱𝒖𝒔𝒕 𝒃𝒆𝒊𝒏𝒈 𝒃𝒍𝒖𝒏𝒕.. 𝑶𝒏𝒄𝒆 𝒘𝒆 𝒓𝒖𝒍𝒆 𝒂𝒍𝒍 𝒄𝒓𝒆𝒂𝒕𝒊𝒐𝒏, 𝒉𝒆'𝒍𝒍 𝒑𝒂𝒚 𝒇𝒐𝒓 𝒕𝒉𝒊𝒔 𝒍𝒊𝒕𝒕𝒍𝒆 𝒔𝒕𝒖𝒏𝒕! 𝑨𝒏𝒅 𝒎𝒂𝒚𝒃𝒆 𝒕𝒉𝒆𝒏 𝒉𝒆'𝒍𝒍 𝒄𝒉𝒊𝒍𝒍 𝒂𝒈𝒂𝒊𝒏 𝒂𝒏𝒅 𝒓𝒆𝒂𝒍𝒊𝒛𝒆 𝒘𝒉𝒐 𝒉𝒆 𝒎𝒊𝒔𝒔𝒆𝒅.. ♪ " ⊹ ࣪ ˖
